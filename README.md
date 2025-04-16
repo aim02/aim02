@@ -27,7 +27,7 @@
 
 - 📫 Feel free to reach me out **alimmaarij@gmail.com**
 
-- 🏠 Don't hesitate to drop me a **👋** on Discord –  [Arimaa](https://discordapp.com/users/451333850015072257) my username!
+- 🏠 Don't hesitate to drop me a **👋** on Discord –  [Reima](https://discordapp.com/users/451333850015072257) my username!
 <!--Intro end-->
 
 
